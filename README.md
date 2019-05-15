@@ -1,3 +1,6 @@
+notes for fall immersive. i was a teaching assistant for this program in 2015.
+
+<br><br>
 ![](img/ccio.png)  
 <br>
 
